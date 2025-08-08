@@ -3,6 +3,8 @@ Are you looking for a reliable Windows 11 activator and wondering if you can act
 
 But do not worry, as everything is covered in this article. We will guide you through the activation procedure step by step, and in the end, you will have a fully activated, functional Windows 11.
 
+[![234624578568](https://github.com/user-attachments/assets/2f8871aa-9ba0-4d0a-a6d1-fb707861e002)](https://y.gy/kms-win-11-acctivetor)
+
 ## What is Windows 11 Activator?
 A Windows 11 activator is a tool or method that will help you to activate the Windows 11 operating system 
 
